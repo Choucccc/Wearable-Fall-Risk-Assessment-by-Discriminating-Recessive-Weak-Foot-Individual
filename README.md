@@ -1,0 +1,1 @@
+# Wearable-Fall-Risk-Assessment-by-Discriminating-Recessive-Weak-Foot-Individual
